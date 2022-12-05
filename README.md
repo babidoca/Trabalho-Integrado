@@ -1,2 +1,2 @@
 # Trabalho-Integrado
-Trabalho Integrado Bárbara e Luis
+Trabalho Integrado Bárbara e Luis Guilherme
